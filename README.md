@@ -1,2 +1,1 @@
-# binders-codex
-Binders® CO.D.EX.™
+# Binders® CO.D.EX.™
